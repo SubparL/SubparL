@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @SubparL
+- 👀 I’m interested in anything creative and challenging
+- 🌱 I’m currently learning programming and designing webpages
+- 😄 Pronouns: She/Her
+- ⚡ Fun fact: I learned how to solve the Rubik's cube in under 30 seconds
